@@ -1,0 +1,2 @@
+# endkagolang
+Alibek Bakdaulet
